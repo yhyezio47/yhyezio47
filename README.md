@@ -2,7 +2,7 @@
 - 👀 I’m interested in guitar,drum,programming and independent game
 - 🌱 I’m currently learning guitar and Python
 - 💞️ I’m looking to collaborate on learning coding
-- 📫 How to reach me [secret]
+- 📫 How to reach me qq:3219134364
 
 <!---
 yhyezio47/yhyezio47 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
